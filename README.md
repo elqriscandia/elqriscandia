@@ -16,5 +16,5 @@
   
 
 <p align="center">
-<img src="https://files.catbox.moe/2zqvko.png" width="100%" height="1000%"> 
+<img src="https://files.catbox.moe/erwzq6.png" width="100%" height="1000%"> 
 </p>
