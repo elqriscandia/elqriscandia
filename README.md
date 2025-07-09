@@ -5,5 +5,5 @@
 　　‎
   
 <p align="center">
-<img src="https://files.catbox.moe/wd8p1b.png" width="70%" height="700%"> 
+<img src="https://files.catbox.moe/1coc9e.png" width="90%" height="900%"> 
 </p>
