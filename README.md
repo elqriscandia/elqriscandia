@@ -33,7 +33,7 @@ This is a personal space. I reserve the right to choose who engages with it.
 
 
 
-✦ ⌗ 𝕊𝕙𝕒𝕝𝕝 𝕨𝕖 𝕡𝕣𝕠𝕔𝕖𝕖𝕕 𝕥𝕠 𝕞𝕪 [𝔸𝕥𝕒𝕓𝕠𝕠𝕜]()? ˗ˏˋ ★*
+✦ ⌗ 𝕊𝕙𝕒𝕝𝕝 𝕨𝕖 𝕡𝕣𝕠𝕔𝕖𝕖𝕕 𝕥𝕠 𝕞𝕪 [𝔸𝕥𝕒𝕓𝕠𝕠𝕜](https://elqriscandia.atabook.org)? ˗ˏˋ ★*
 
 
 <div align="center">
