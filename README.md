@@ -7,7 +7,7 @@
 　　‎
   
 <p align="center">
-<img src="https://files.catbox.moe/cawlqk.png" width="100%" height="1000%"> 
+<img src="https://files.catbox.moe/cawlqk.png" width="80%" height="700%"> 
 </p>
 
 ✧ ˚₊‧꒰ 𝑬𝒍𝒒𝒓𝒊𝒔 ⋆ 𝑬𝒍 ⋆ 𝑰𝑵𝑭𝑷 ꒱ ‧₊˚✧
