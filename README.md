@@ -17,13 +17,13 @@
 ┊͙ ❝ 𝑴𝒆𝒅𝒊𝒐𝒄𝒓𝒆! ❞
 
 ᝰ⠀⟡ DNI LIST ⟡
-This is a personal space. I have the right to choose who engages with it.
+This is a personal space. I reserve the right to choose who engages with it.
 
-⤷ Do not interact: Ratio haters, racist, lgbtqia+phobic x including transmeds, exclusionists, terfs and illegitmate sexualities/pronouns. anti-semetic, xenophobic/islamophobic, abelist, pedophilic/MAP, sexist/misogynistic. Werid yuri/Bl obessed people (i like yuri and bl but if it gets to point where its werid? yeah no).
+⤷ Do not interact if you’re a Ratio hater, racist, anti-semitic, xenophobic, islamophobic, ableist, or LGBTQIA+phobic — including transmeds, TERFs, exclusionists, and anyone who disrespects identities or pronouns. If you joke about rape, use slurs you can’t reclaim, or believe racial minorities can’t be racist, you’re not welcome. The same goes for pro-shippers, anti-antis, comshippers, and anyone who claims “fiction doesn’t affect reality.” If you ship incest or pedophilia, fetishize LGBTQ+ pairings, identify as a fujoshi/fudanshi, or romanticize abuse, mental illness, or self-harm — don’t interact. This space is not for those interested in vore, gore, or other immoral content. I’m also uncomfortable with anyone from the Forsaken or CRK fandoms. And if you ship Sunturine or Neuvifuri, or take BL/Yuri to a weird obsessive level, stay far away.
 
-Sunturine shippers, neuvifuri shippers. vore/gore interested people, Foresaken (just dont like the fandom), Crk (just dont like the fandom) Rxpe jokes, People who say slurs they cant reclaim, people who think people in racial minorities can't also be racist. 
+⟡ Respect boundaries, or leave quietly. You won’t be missed.
 
-⟡ Respect boundaries, or leave quietly. You wont be missed.
+
 
 ⪩ㅤdiscord: elqriscandia.ㅤ⪨ ㅤ ㅤ
 
