@@ -1,6 +1,7 @@
 <div align="center">
   
-![Scholars](https://img.shields.io/badge/Scholars-1.618-4b0082?style=for-the-badge)
+![Static Badge](https://img.shields.io/badge/%E2%9C%B6%20Scholars%20%E2%9C%B6-1.618-indigo)
+
 
 <p align="center">
 <img src="https://files.catbox.moe/iz95f1.png" width="100%" height="1000%"> 
