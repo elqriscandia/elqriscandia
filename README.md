@@ -1,6 +1,4 @@
 <div align="center">
-  
-![Static Badge](https://img.shields.io/badge/%E2%9C%B6%20Scholars%20%E2%9C%B6-1.618-indigo)
 
 
 <p align="center">
@@ -10,7 +8,7 @@
 
 
 
-
+![Static Badge](https://img.shields.io/badge/%E2%9C%B6%20Scholars%20%E2%9C%B6-1.618-indigo)
 <p align="center">
 <img src="https://files.catbox.moe/cawlqk.png" width="80%" height="700%"> 
 </p>
