@@ -6,6 +6,8 @@
 </p>
 　　‎
 
+  hitaus -- wont be on ponytown until i find intrest in the game again,
+
 
 
 ![Static Badge](https://img.shields.io/badge/%E2%9C%B6%20Scholars%20%E2%9C%B6-1.618-teal)
